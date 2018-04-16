@@ -53,3 +53,31 @@ Em marketing digital, os leads são aquelas pessoas que visitam o seu site e dem
 Para que seja possível adotar esse tipo de estratégia, o site da sua empresa deve estar muito bem estruturado e preenchido com conteúdos que atendam às necessidades do seu público-alvo. Isso demanda tempo e perseverança, com um investimento na manutenção do site e na criação de conteúdo que o alimente.
 
 Quer saber mais sobre o que significa ter um bom site? Lei também o nosso artigo Tudo o que você precisa saber para criar um site para o seu negócio.
+
+
+## **5 Motivos de porque a sua empresa deve ter um site**
+
+Mesmo com esse constante avanço tecnológico atual, ainda há empresários que não veem vantagens em ter um site para o seu negócio.
+
+Existe um ditado que diz: “ Sua empresa só existe se ela estiver na internet”. Vamos entender agora um pouco mais sobre quais as principais vantagens de ter o seu negócio divulgado na internet.
+
+## **Motivo 1:  Facilidade para o cliente encontrar a sua empresa Site em Rio Preto**
+Possivelmente você já teve alguma dúvida sobre algum produto ou serviço, ou até para pesquisar algum número de telefone comercial, e para sanar essa dúvida você fez uma pesquisa na internet, é nesse momento que o site da sua empresa entra em cena.
+
+Além de credibilidade, um site é a principal forma para se estabelecer um bom relacionamento com o consumidor, pois lá é que está contido todo o DNA do seu negócio: serviços, produtos, missão, visão, valores, endereço, todas as informações que possam facilitar e reduzir o caminho entre a troca de valores, seja ele como forma de venda de um produto ou a prestação de um serviço.
+
+## **Motivo 2: Menor custo na hora de encontrar possíveis clientes Site em Rio Preto**
+Imagine que um site receba em média 5 visitas por dia em um prazo de 30 dias, no final desse período, você terá estabelecido contato com 150 clientes em um mês sem ter que gastar uma grande quantia em dinheiro para que a mesma quantidade de clientes visitassem sua loja física. Ter um site não quer dizer que a sua empresa não possa ter uma loja física, muito pelo contrário, as duas coisas se complementam. É muito comum hoje um cliente pesquisar sobre uma empresa na internet antes de estabelecer um contato mais próximo.
+
+## **Motivo 3: Aumento das vendas em grande escala Site em Rio Preto**
+Vamos pensar o seguinte, com o crescimento da internet, sua empresa não precisa e não deve se limitar a apenas o mercado local. Um exemplo são as lojas virtuais, que na maioria dos casos além de possuir lojas físicas, possuem também toda uma estrutura virtual para não se limitar a apenas o público local, podendo assim atender em todo o país. Além de um grande aumento no faturamento, há também um fortalecimento do nome da marca em uma grande escala.
+
+## **Motivo 4: Integração com redes sociais Site em Rio Preto**
+Você deve estar se perguntando, já tenho uma página no Facebook, preciso ter um site? Vamos entender o seguinte, redes sociais funcionam como uma vitrine. Imagine-se andando por uma rua e você acaba gostando de um determinado produto em uma vitrine, ao se interessar pelo produto você faz oque? Entra na loja para ver mais de perto, é ali onde ele entra em contato com a sua marca, seja sendo atendido por um vendedor ou vendo detalhes do produto. Na internet o processo é o mesmo, porém quem faz o papel de vitrine é a Rede Social, e quem faz o papel da loja é o site.
+
+## **Motivo 5: Mensuração de dados e resultados Site em Rio Preto**
+Na internet, recolher dados de possíveis comprados e pessoas que visitam o seu site é simples e muito mais barato que em uma loja física.
+
+Vou te fazer a seguinte pergunta: Você possui o histórico detalhado dos últimos 100 clientes que visitaram ou tentaram fazer negócio com a sua empresa? Se sim, você provavelmente teve altos gastos em estrutura interna para alcançar esse mérito, não é mesmo?!
+
+Agora, se a respostas for não, você pode estar perdendo uma grande oportunidade. Ter um histórico de seus clientes facilita fazer negócios com eles futuramente, além disso, você poderá mensurar dados como, localização, idade, interesses, definindo assim um perfil de público que irá facilitar e contribuir em possíveis campanhas de divulgação.
