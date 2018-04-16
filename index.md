@@ -1,7 +1,7 @@
 ## **Criação de site em São José do Rio Preto**
 Para saber mais, entre em contato (17) 99157-7379
 
-## **Por que ter um site é essencial para a sua empresa? em Rio Preto**
+## **Por que ter um site é essencial para a sua empresa em Rio Preto**
 
 Marcar presença no mundo digital se tornou obrigação para qualquer empresa hoje em dia. Segundo um estudo conduzido pelo Facebook, em dezembro de 2015, 44% da população mundial, o equivalente a 3,2 bilhões de pessoas, está conectada à internet. E estima-se que esse número cresça entre 200 e 300 milhões por ano.
 
@@ -11,14 +11,14 @@ E com tanta gente usando a internet, você ainda se pergunta por que ter um site
 
 Em um mundo em que grande parte da publicidade é veiculada digitalmente e cada vez mais se substitui as compras presenciais por virtuais (isso sem contar as pesquisas online antes de comprar offline), é essencial para qualquer empresa se mostrar na internet. Se você ainda tem dúvidas de por que ter um site, abaixo listamos alguns motivos que vão te convencer da importância de possuir um. Confira:
 
-## **Por que ter um site? Inclusão digital! em Rio Preto**
+## **Por que ter um site? Inclusão digital em Rio Preto**
 A internet não só possibilitou a aproximação de mercados, como também vem aumentando a concorrência. Ter um site bem estruturado, que passe informações concretas sobre sua empresa vai passar uma boa impressão para os seus potenciais consumidores. Se coloque no lugar deles, você compraria de uma empresa que tem um site mais ou menos? E de uma empresa que não tem site?
 
 Um site deve estar atualizado e apresentar muito bem o que sua empresa vende — sendo produto ou serviço. O importante é conter boas informações para que o seu consumidor o encontre e, principalmente, escolha você entre tantos outros concorrentes!
 
 Está se tornando uma prática comum para qualquer consumidor pesquisar referências tanto de produtos quanto de empresas na internet. Portanto, não ter um site significa ser invisível on-line, o que pode ser péssimo para o seu negócio que, além de não atrair novos clientes, perde credibilidade com aqueles que compram off-line.
 
-## **Por que ter um site? Sua empresa online 24h por dia! em Rio Preto**
+## **Por que ter um site? Sua empresa online 24h por dia em Rio Preto**
 O seu site é sua vitrine na internet. Sua empresa pode estar fora do horário comercial, mas, em contrapartida, seu site estará 24 horas por dia apresentando os seus produtos ou serviços para os seus clientes. A melhor forma de garantir um elo entre sua empresa e seus clientes é ter um site institucional, que apresente de forma rápida e fácil os serviços que sua empresa oferece.
 
 Além disso, para empresas que lidam com comércio, ter uma loja virtual permite que seus clientes efetuem compras a qualquer horário, de qualquer lugar. Como o atendimento é feito de forma automática pelo próprio site, na prática isso significa que seu negócio estará funcionando 24 horas por dia, 7 dias por semana.
