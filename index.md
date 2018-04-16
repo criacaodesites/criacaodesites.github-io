@@ -81,3 +81,7 @@ Na internet, recolher dados de possíveis comprados e pessoas que visitam o seu 
 Vou te fazer a seguinte pergunta: Você possui o histórico detalhado dos últimos 100 clientes que visitaram ou tentaram fazer negócio com a sua empresa? Se sim, você provavelmente teve altos gastos em estrutura interna para alcançar esse mérito, não é mesmo?!
 
 Agora, se a respostas for não, você pode estar perdendo uma grande oportunidade. Ter um histórico de seus clientes facilita fazer negócios com eles futuramente, além disso, você poderá mensurar dados como, localização, idade, interesses, definindo assim um perfil de público que irá facilitar e contribuir em possíveis campanhas de divulgação.
+
+
+
+## **Criação de site em Rio Preto, Crie seu site em Rio Preto, Site em Rio Preto**
