@@ -3,7 +3,7 @@ Para saber mais, entre em contato (17) 99157-7379
 
 ## **Por que ter um site é essencial para a sua empresa? em Rio Preto**
 
-Marcar presença no mundo digital se tornou obrigação para qualquer empresa hoje em dia. Segundo um� estudo conduzido pelo Facebook, em dezembro de 2015, 44% da população mundial, o equivalente a 3,2 bilhões de pessoas, está conectada à internet. E estima-se que esse número cresça entre 200 e 300 milhões por ano.
+Marcar presença no mundo digital se tornou obrigação para qualquer empresa hoje em dia. Segundo um estudo conduzido pelo Facebook, em dezembro de 2015, 44% da população mundial, o equivalente a 3,2 bilhões de pessoas, está conectada à internet. E estima-se que esse número cresça entre 200 e 300 milhões por ano.
 
 No Brasil, um levantamento realizado pela TIC domicílios também em 2015 apontou que 58% da população brasileira usa internet, um crescimento de mais de 5% em relação à 2014. Já o crescimento em publicidade digital no país cresce ainda mais rápido, em 2016 aumentou fantásticos 26%, conforme contou meu sócio em uma artigo publicado recentemente (clique aqui para ler na íntegra o artigo do meu sócio 6 dicas de marketing digital para gerar resultado).
 
@@ -21,12 +21,12 @@ Está se tornando uma prática comum para qualquer consumidor pesquisar referên
 ## **Por que ter um site? Sua empresa online 24h por dia! em Rio Preto**
 O seu site é sua vitrine na internet. Sua empresa pode estar fora do horário comercial, mas, em contrapartida, seu site estará 24 horas por dia apresentando os seus produtos ou serviços para os seus clientes. A melhor forma de garantir um elo entre sua empresa e seus clientes é ter um site institucional, que apresente de forma rápida e fácil os serviços que sua empresa oferece.
 
-Além disso, para empresas que lidam com comércio, ter uma� loja virtual permite que seus clientes efetuem compras a qualquer horário, de qualquer lugar. Como o atendimento é feito de forma automática pelo próprio site, na prática isso significa que seu negócio estará funcionando 24 horas por dia, 7 dias por semana.
+Além disso, para empresas que lidam com comércio, ter uma loja virtual permite que seus clientes efetuem compras a qualquer horário, de qualquer lugar. Como o atendimento é feito de forma automática pelo próprio site, na prática isso significa que seu negócio estará funcionando 24 horas por dia, 7 dias por semana.
 
 Lojas virtuais também possuem a grande vantagem de romper barreiras geográficas. Na prática, é possível comprar qualquer coisa em qualquer lugar do mundo. Isso dá o potencial para sua empresa atingir um público em proporções quantitativas jamais imaginadas!
 
 ## **Fortalecimento da marca com seu site em Rio Preto**
-Se sua empresa quer� sobreviver na internet, é importante que ela passe credibilidade. Quero dizer, de nada adianta estar na internet e não ser encontrado ou ser encontrado com um site sem conteúdo e feio.
+Se sua empresa quer sobreviver na internet, é importante que ela passe credibilidade. Quero dizer, de nada adianta estar na internet e não ser encontrado ou ser encontrado com um site sem conteúdo e feio.
 
 Dessa forma, você pode estar passando uma imagem negativa da sua empresa. A construção de uma marca forte pode demorar como também demandar um grande esforço para a sua empresa. A internet se torna um grande aliado e pode diminuir esse caminho, se for bem utilizada. Mas, para isso, você precisa ter um site funcional, que proporcione uma ótima experiência ao usuário e que transmita confiança (clique aqui e saiba mais sobre como deixar o site da sua empresa “funcional”).
 
@@ -46,9 +46,9 @@ Quer saber mais sobre marketing de conteúdo? Clique aqui.
 ## **Geração de leads com seu site em Rio Preto**
 Um site bom é aquele que vai trazer seus clientes até sua empresa. Mas o que significa ter um site bom? Se coloque no lugar de um consumidor que acessa o seu site para conhecer sua empresa, seus produtos e serviços. Para ele, um bom site deve apresentar um bom conteúdo, sendo de fácil acesso, responsivo e intuitivo.
 
-Com um layout bem trabalhado, descrição da empresa, principais serviços oferecidos, conteúdos que contenham� call to action (uma chamada para uma ação, que pode ser preencher um formulário ou deixar um comentário na sua página), contatos, imagens, entre outros, você induz seu cliente à descoberta, interesse, consideração, avaliação e compra.
+Com um layout bem trabalhado, descrição da empresa, principais serviços oferecidos, conteúdos que contenham call to action (uma chamada para uma ação, que pode ser preencher um formulário ou deixar um comentário na sua página), contatos, imagens, entre outros, você induz seu cliente à descoberta, interesse, consideração, avaliação e compra.
 
-Em� marketing digital, os leads são aquelas pessoas que visitam o seu site e demonstram interesse no consumo dos seus produtos ou serviços. Na prática, é possível gerar esses consumidores em potencial apresentando conteúdo relevante para eles, guiando-os na identificação das suas necessidades até a sua solução, que deve ser ofertada pela sua empresa.
+Em marketing digital, os leads são aquelas pessoas que visitam o seu site e demonstram interesse no consumo dos seus produtos ou serviços. Na prática, é possível gerar esses consumidores em potencial apresentando conteúdo relevante para eles, guiando-os na identificação das suas necessidades até a sua solução, que deve ser ofertada pela sua empresa.
 
 Para que seja possível adotar esse tipo de estratégia, o site da sua empresa deve estar muito bem estruturado e preenchido com conteúdos que atendam às necessidades do seu público-alvo. Isso demanda tempo e perseverança, com um investimento na manutenção do site e na criação de conteúdo que o alimente.
 
